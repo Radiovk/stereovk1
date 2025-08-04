@@ -1,1 +1,0 @@
-# stereovk1
